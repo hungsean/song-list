@@ -10,7 +10,7 @@
 
 ---
 
-### ベテルギウス - 優里
+### ベテルギウス(參宿四) - 優里
 
 **連結**：[YouTube](https://www.youtube.com/watch?v=cbqvxDTLMps)
 
