@@ -26,6 +26,34 @@
 
 ---
 
+## 七成會如果不介意
+
+### 可愛くてごめん - HoneyWorks
+
+**連結**：[YouTube](https://www.youtube.com/watch?v=K4xLi8IF1FM)
+
+Chu!可愛くてごめん~
+
+---
+
+## 現在點不了，但經過18~30個月有機會
+
+### ファンサ／mona(CV：夏川椎菜) - HoneyWorks
+
+**連結**：[YouTube](https://www.youtube.com/watch?v=lzyDD8bMDKs)
+
+這很適合那種偶像週邊聽邊打call
+
+---
+
+### FIRE BIRD - Roselia
+
+**連結**：[YouTube](https://www.youtube.com/watch?v=Qf87EzO2lxw)
+
+"這個太高音了唱不上去"實屬可惜
+
+---
+
 ---
 
 (以下只是範例方便我複製)
