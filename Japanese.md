@@ -26,6 +26,8 @@
 
 ---
 
+---
+
 ## 七成會如果不介意
 
 ### 可愛くてごめん - HoneyWorks
@@ -33,6 +35,60 @@
 **連結**：[YouTube](https://www.youtube.com/watch?v=K4xLi8IF1FM)
 
 Chu!可愛くてごめん~
+
+---
+
+---
+
+## 我夢到的
+
+### 紅蓮華 - LiSA
+
+**連結**： [YouTube](https://www.youtube.com/watch?v=x1FV6IrjZCY)
+
+有人不知道這首歌嗎之一
+
+---
+
+### アイドル - YOASOBI
+
+**連結**： [YouTube](https://www.youtube.com/watch?v=ZRtdQ81jPUQ)
+
+有人不知道這首歌嗎之二
+
+---
+
+### ドライフラワー(乾燥花) - 優里
+
+**連結**： [YouTube](https://www.youtube.com/watch?v=kzZ6KXDM1RI)
+
+有柔的地方，也有很激勵人心的地方
+
+---
+
+### First love - 宇多田ヒカル
+
+**連結**： [YouTube](https://www.youtube.com/watch?v=o1sUaVJUeB0)
+
+老歌一首
+
+---
+
+### 雪の華 - 中島美嘉
+
+**連結**： [YouTube](https://www.youtube.com/watch?v=mF5Qq2YheTg)
+
+如果想要個治癒人心的歌這個相當適合
+
+---
+
+### 夜に駆ける - YOASOBI
+
+**連結**： [YouTube](https://www.youtube.com/watch?v=x8VYWazR5mE)
+
+有人不知道這首歌嗎之三
+
+---
 
 ---
 
@@ -60,7 +116,7 @@ Chu!可愛くてごめん~
 
 ### 歌名 - 演唱者
 
-**連結**：[YouTube](連結)
+**連結**： YouTube
 
 要說什麼寫在這
 
