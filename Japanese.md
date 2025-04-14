@@ -26,6 +26,14 @@
 
 ---
 
+### シルシ - LiSA
+
+**連結**： [YouTube](https://www.youtube.com/watch?v=y6FCQWlKeJQ)
+
+感覺蠻常聽到清唱的版本
+
+---
+
 ---
 
 ## 七成會如果不介意
